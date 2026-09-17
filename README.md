@@ -9,6 +9,6 @@
 
 
 
-![Placeholder](C:\Users\ABDUL AHAD LODHI\Pictures\pf_theory_assingment1/1.jpg)
+![Placeholder](https://github.com/abdulahadlodhi12/26k-2525_PF_THEORY_abdulahadlodhi/tree/main/pics/parta)
 
 
